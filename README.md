@@ -1,4 +1,4 @@
-![](https://www.asbu.edu.tr/sites/anasayfa.asbu.edu.tr/files/gva-sliderlayer-upload/tarihce2-2pxttz.jpg)
+![](/tarihce2-2pxttz.jpg)
 
 # Social Sciences University of Ankara (ASBU)
 
